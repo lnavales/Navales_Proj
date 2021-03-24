@@ -1,2 +1,2 @@
 # Navales_Proj
-Sir yung paggamit man lang ng github di ko gets AHHAHAHA nagalag kasi yung laptop
+nagbago po ako sir ng content ang pangit kasi nung dati tapos di ko alam pano ko gagawan ng design. 
